@@ -1,1 +1,2 @@
 # Jason
+I’m actually interested in hands-on lab work rather than theory alone. At the moment, I’m not involved in any research, but in the past I really enjoyed watching chemistry experiments being carried out in the lab—it was very satisfying to me. Sometimes, I also wished I could perform the experiments myself. Recently, my main hobby has shifted toward the stock market, where I’ve been doing reasonably well, and over the past three years my returns have outperformed the Nasdaq which makes me love it more.
